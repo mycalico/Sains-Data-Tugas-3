@@ -3,4 +3,4 @@
 Nama  : Sofia Ardina
 NIM   : 19.01.013.035
 ```
-![image](https://user-images.githubusercontent.com/105371183/195077513-171fadba-df52-4f17-9ed8-aceb68f2781c.png)
+![image](https://user-images.githubusercontent.com/105371183/195217366-69cf834b-303a-464b-a146-183c75f234d4.png)
